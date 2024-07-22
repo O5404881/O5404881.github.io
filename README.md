@@ -1,1 +1,4 @@
 - [https://x.com/O5404881](https://x.com/O5404881)
+- [https://www.youtube.com/channel/UCPMWiuxd9YnpVEXO_bBbLzw](https://www.youtube.com/channel/UCPMWiuxd9YnpVEXO_bBbLzw)
+- [https://www.reddit.com/user/KiwiBig3836/](https://www.reddit.com/user/KiwiBig3836/)
+- [https://medium.com/@O5404881](https://medium.com/@O5404881)
