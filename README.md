@@ -3,3 +3,4 @@
 - [https://www.reddit.com/user/KiwiBig3836/](https://www.reddit.com/user/KiwiBig3836/)
 - [https://medium.com/@O5404881](https://medium.com/@O5404881)
 - [https://medium.com/@O5404881/gamers-outraged-as-highly-anticipated-dinosaur-game-faces-an-untimely-demise-527f6bb7ea11](https://medium.com/@O5404881/gamers-outraged-as-highly-anticipated-dinosaur-game-faces-an-untimely-demise-527f6bb7ea11)
+- [https://www.youtube.com/watch?v=WY11u06yGlc](https://www.youtube.com/watch?v=WY11u06yGlc)
